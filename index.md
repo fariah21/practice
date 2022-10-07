@@ -9,7 +9,7 @@ I've taken classes at Lawrence
 - Bio 150
 - Neuro 200
 
-Here's a picture of my beautiful face 
+Here's few pictures of my beautiful face 
 
 ![instagram]https://www.instagram.com/fariah.21/ 
 
